@@ -9,7 +9,7 @@ Special thanks to Dr.Charles Russell Severance, School of Information, Universit
 
 ## About Me
 Omkar Atugade,<br>
-Mumbai, Maharashtra, India.
+Mumbai, Maharashtra, India.<hr>
 
 ## Find me on :
 [Instagram](https://www.instagram.com/omi_atugade)<br>
